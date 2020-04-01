@@ -1,0 +1,12 @@
+---
+title: Athens and Mykonos
+author: mvaltie
+date: 2009-07-25T21:09:17+00:00
+url: /2009/07/25/athens-and-mykonos/
+
+---
+Wednesday night Jacob and I got out of the not-as-exciting Thessaloniki just in time to avoid the train strike and make our reservations for the hotel and ferries we&#8217;d booked months before.   We got into the old city around 10pm, and for some reason could not convince a cab to take us to our hotel.  We&#8217;d called to tell the hotel we would arrive late and they told us it would be a 30-minute ride from the train station.  We thought drivers wouldn&#8217;t want to drive so far, but after every cab filled all the seats we realized they wanted multiple fares, so we waited until everyone else left until we flagged a cab. 
+
+Our hotel, the St. George, was beautiful and on a hill overlooking the Acropolis.  The breakfast the next day was wonderful, and included a huge amount of fruit which I&#8217;d been craving in all the meat-heavy countries.   Friday we attempted to get visas at the Ghanaian consulate, but the one man was very flustered since we were neither Greek nor Ghanian citizens.  He called many people and explained and grossly misreported our story- he would confuse the number of weeks we were in Greece with how soon we would arrive in Ghana, he suspected we only wanted to visit because Obama had been there, he said we&#8217;d been in Europe for 4 months, and he kept saying we were asking for student visas.  After the first few mistakes I stopped correcting him, and thanked him for his help. Our Ghanaian host and &#8216;boss&#8217; has been infinitely more helpful without even speaking to us.
+
+After that visit, we went to the Acropolis to quickly walk around the Parthenon, the ancient theaters, and temples.   It was incredibly hot and full of cruise boat tours and groups speaking all languages and stopping every 5 feet.  It was a shock to see tourists after our time in the lesser traveled parts of Eastern Europe.  We took some touristy photos and escaped the crowds, only to wait in line at the newly opened Acropolis Museum below.   The museum was built to convince Brits to return the treasures taken in the 1830s, and there were interesting gaps in the sculptures and monuments.   After absorbing the air conditioning and drinking some free water, we went back to our hotel to jump in the rooftop pool.

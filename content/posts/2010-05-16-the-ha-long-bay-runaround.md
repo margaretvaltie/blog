@@ -1,0 +1,31 @@
+---
+title: The Ha Long Bay Runaround
+author: mvaltie
+date: 2010-05-16T09:05:20+00:00
+url: /2010/05/16/the-ha-long-bay-runaround/
+
+
+---
+Our 3 day, 2 night visit to Ha Long Bay was beautiful, but an incredibly frustrating experience.  We’d read that the boat company is infamous for cramming people into tours and shuffling people around from site to site, but even our low expectations were not met.  Each tour office in Hanoi offers some version of the same tour package, but everyone ends up at the mercy of what the boat and tour employees decide.  Everyone we met was exasperated with guides, boats, buses, and the tour offices by the end of the trip.  Essentially the boat and tour company is so large and monopolistic that all the tour guides, boat drivers and hotel staff clearly do not care about the quality of anyone’s individual experience.
+
+Most of our tour was with the same 8 people for 3 days, but we were moved around from boat to boat and tour guide to tour guide.  A few people in our boat got angry with the guides, but they only shrugged and offered us irritatingly simple answers to our questions. When some tourists got different itineraries the guides simply said “oh, they have different tour” or “yes, they paid more” even after we had just talked to the group of people on the exact same tour as us.  Most frustratingly, the guides would push the blame on to anyone else- the boat drivers, the tour company, our hotel that booked the tour or the bus drivers.  “I’m not the tour company, only a guide” must have been an integral part of the guide training!
+
+At least our tour wasn’t the worst. On our second night we ran into an Israeli pair who said their tour group “was broken”.  Apparently their guide infuriated them so much that some people refused to pay higher prices than others, the police were called and their passports were taken as insurance in the mean time.  They also mutinied on their overnight boat, refusing to pay the surprise extra costs for either buying drinks onboard or the fee for bringing outside drinks on the boat.  It was slightly reassuring to know that other guides could actually be worse than the 5 we had in 3 days.
+
+&#8211;
+
+The sights themselves were amazing- we floated around over 3,000 limestone islands, climbed through caves, and drove around a beautiful lush island.  Most of all we met great people on our boat and in our hotels.  On the first day we drove the 3 hours from Hanoi to Ha Long Bay, with a stop at a touristy souvenir area halfway.  At the bay our bus dispersed and we waited for the people with a similar-length tour to fill our boat.  Straight away we sailed over to the largest and most touristy caves where we quickly marched through the artificially-lit rock formations.  More excitingly, the next cave over from the crowded cave was essentially deserted and untouched by the fake lights and guides.  Jacob and I explored the other cave with the fun group from our boat- 2 German girls, a Belgian girl and a Finish guy.
+
+After the cave the 6 of us grouped up again to kayak around another area with low caves and little beaches.  The Germans, Sandy and Suzie, had some trouble rowing together so Jacob and I tied them to our kayak and towed them around the islands and raced the Northern Europeans, Kim and Mikko.  Our boat anchored for the night and some of the more adventurous of the group jumped off the top deck of the boat.
+
+By chance, our Finish friend, Mikko had a birthday the day before mine, so we had a joint party on the top of the boat that night.  Our group of 6 and 2 British couples stayed up drinking and talking, which was not nearly as fun the next day. Guide number 1 woke us at 7am for breakfast and we docked at Cat Ba Island to move on to our next site and guide. We said goodbye to Mikko and Kim, who were both shuffled around to different tours.  After about an hour, Guide 2 took us to the national park for a hike up a hill for good views.  An hour later we were all muddy, pouring sweat and perilously atop the narrow mountain peak.  The ‘trekking’ was really some serious mountain climbing!
+
+Another bus trip took us to the touristy Cat Ba city on the other side of the island.  Some people rented mopeds and drove around while others went to the beach and fishing villages. The city was a comical tourist trap with only hotels, restaurants and bars and a few souvenir shops mixed in.  After our group dinner we went out to the bar Guide 2 recommended, apparently he even promised that he could get us a birthday cake there.  Sandy, Suzie, Jacob and I sat outside the bar for better people watching and we found Kim walking by.  Guide 2 couldn’t scrounge up a cake but he did get a fruit plate of bananas, apples and green mangos.  As we ate the fruit a massage man walked by and offered us massages right on the spot, so 3 of us got shoulder massages for about $1 as we sat at the bar.  Great fun.
+
+The next day we essentially just returned to Hanoi, from bus to boat to bus to bus with some planned stops at souvenir shops of course.  By this point most everyone was upset about something in the trip, so Guide 3 had to bear the brunt of the angry tourists.  One girl had hit a car while riding mopeds on the island but Guide 3 assured her she would be “cured” in 3 days.  I joked with her that I’d heard that before- all the Argentinians told me I would be fine in 3 days when a horse bit me.  It was swollen for a month and I still have marks!
+
+Back in Hanoi we got upgraded to another hotel and were reunited with our backpacks.  We met up with Sandy and Suzie again for dinner. We joked that after 10 meals together on our trip we forgot how to eat without them.  Since they are both vegetarian we tried a Buddhist mock-meat restaurant.  Everything they served was vegetable, but dishes were made to look like meat.  I had fake pork that even had a layer of fake fat, and the menu offered fake stake, fake seafood and all types of real vegetables of course.
+
+\***
+
+Overall it was a very trying trip to Ha Long Bay, although the sites were very worth the hassle.  If we could do it again we would definitely have gone independently.  Since our nightmare trip we’ve met several people who just drove out to the bay, hired a boat for the day, rented kayaks on their own and saved the runaround.

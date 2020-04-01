@@ -1,0 +1,13 @@
+---
+title: A Piece of Pokuase
+author: mvaltie
+date: 2009-09-17T15:02:52+00:00
+url: /2009/09/17/a-piece-of-pokuase/
+---
+Yesterday after work Jacob and I stopped by the football pitch, or soccer field, where the VPWA team practices.  We met with a few of the players who were just goofing off and had a stern talk with the coach, Nico (short for Nicolas).  The team of 10-18 year old boys was interested in registering in the 3 leagues they qualify for, but VPWA has been sponsoring the team as an after-school program rather than a league team.  Nico and the players decided to try the Obruni for money.  Jacob talked with Ben, Nico, our volunteer director, and some players to figure out exactly what was going on and what it would mean to register the team.  Jacob decided that if VPWA wouldn’t register the team he would help out with the rest of the costs of registering, even though it would change the character of the team.  Over the weekend Nico and the players registered, thanks to a donation from Jacob.  Yet when we visited yesterday, most of the players were not at practice, no one was running the drills, and Nico asked Jacob for more money for the team.  Jacob explained to Nico that the team should be funded by players and businesses now rather than the Jacob fund.
+
+We were a little disheartened on our walk back.  It seems like someone had the idea to ask the Obroni for more and more money. It’s disappointing that we’ve changed from volunteers, friends and coaches to walking bank accounts in their eyes. Yet the walk back through Pokuase made me realize that I would always be happy if I could take a little bit of the village back with me.  Little kids get so excited just to see and wave at White People, everyone says hi to us, and it’s really humbling to see how people really live without water, electricity, privacy, or bathrooms.  No matter how bad my day could be, a little kid running up to us and excitedly yelling “Obruni!!” always makes me smile.
+
+We discovered we have a long weekend, since Monday is the end of Ramadan.  Anna’s school and our work won’t be open so we’ve made plans to visit a little beach town west of the city of Cape Coast.  Cape Coast is where the colonists built forts and the infamous slave castles where Michelle Obama can trace her ancestors back to.  The village of Busau apparently has beautiful beaches, little Africa huts, and not much else.  Anna and her friends went on their travels through Ghana, and she’s excited to go back.  We’re planning to enjoy the beach for most of the weekend and go see the sights in Cape Coast on Monday as we make our way back to Accra.  Turns out we get our Labor Day holiday after all!
+
+Here are some photos of our view of the city from our balcony at work:

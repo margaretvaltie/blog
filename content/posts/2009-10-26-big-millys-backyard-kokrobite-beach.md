@@ -1,0 +1,21 @@
+---
+title: 'Big Milly’s Backyard- Kokrobite Beach'
+author: mvaltie
+date: 2009-10-26T10:19:53+00:00
+url: /2009/10/26/big-millys-backyard-kokrobite-beach/
+
+
+---
+This weekend Jacob, Charlie and I went to Kokrobite Beach, about 25km outside of Accra.  Around 10am on Friday Jacob, Charlie and I headed towards our work at ABC Junction via trotro. BossMan volunteered to drive us to the beach, and we jumped at the chance for a free ride. When we got to work we discovered that we would have 4 escorts to the beach- BossMan, Big Jerry, Joe and Eric.  Big Jerry and Joe own the building we work in, Eric drove the van, and BossMan was our ‘tour guide.’   We’ve never seen BossMan yell or jump, but Friday everyone was in quite an excited mood.  BossMan screamed at us as we arrived, jumped up and down, and simultaneously told us to all get in the van, show Charlie our office, and eat some of the rice he had.   It was quite the beginning of an interesting voyage to the beach.
+
+On our way out of the city, Jacob and Charlie asked to stop at an ATM.  Rather than drive around the overpass next to our building, we drove outside of the Greater Accra Region to the Eric’s hometown.  We drove around the market, through little dirt alleyways, and went through a toll booth twice before we came to the bank.  Sadly, Charlie’s card didn’t work, so we drove around some more before Sam escorted Charlie across the divided road to an ATM.  With great success, we drove over a hill and were already at the beach.  We spent over ¾ of our drive finding ATMs in another part of town.
+
+We drove up to Big Milly’s Backyard, and as the van pulled up to the outdoor bar area BossMan jumped out and yelled “hello!! We’re here!! Hello everybody!!”  Even Jacob was embarrassed.
+
+We spent the next few hours in pure hilarity.  Big Jerry, recharged from his power nap in the van, was on a roll joking with all 3 of us.  He told Charlie he would help him find ladies, and he yelled at every girl that walked by.   He told Jacob to leave the country early so Jerry could make moves on me, and eventually take me back to the US to get him citizenship.  He even had an elaborate plan to make Charlie pretend to drown so while Jacob saved Charlie Jerry could move in on me.   He also told us that because of the way he dresses- jeans, polo shirts, straight-brim hats- people think he spent time in the US.  When people ask him where he was (without realizing he’s never actually been to the US), he tells them he lived in Virginia.  Jacob and I taught him to say that he lived in Arlington, VA- the whitest town we could think of.  We hope someone from Arlington meets Jerry some time!
+
+Next Jerry wanted to go swimming in the ocean.  After about 5 minutes he and Joe came trudging back. Joe had rolled up his pants and had sand up to his ankles, while Jerry was soaking wet, his clothes covered in sand.  Jacob changed into his suit, and we all headed to the beach.  Jacob and Jerry convinced Joe and Eric to swim, then Jerry tackled Charlie in the water and pretended to steal me away from Jacob. He ended up just throwing me into the water.
+
+After our crazy entourage left to go back to work, we had lunch and explored the hostel.  Friday night was BBQ night, and after dinner there was a drumming and dancing show with traditional Ghanaian drums.   On Saturday we lazed around and went to the beach.  We watched as 2 groups of local fishermen pulled in massive nets.  Apparently a few men swim out with the nets, cast them, and then the whole village comes out to help pull it back to the beach.  Once the nets come in women split up the fish to sell and the fishermen sew the nets before the next cast.   Saturday night was reggae night with 3 bands playing Bob Marley covers late into the night.
+
+The hostel had some craft sellers inside the compound, and I bought some jewellery, a hand-made cloth with a Ghanaian symbol on it, and all 3 of us bought some ridiculous looking lounge pants made out of patches of fabric and flour sacks.  When we came back Sunday afternoon we all changed into our pants and showed Hayford and Princess.  They agreed that we looked silly in our matching flour sacks and patched pants, but they are very comfortable.

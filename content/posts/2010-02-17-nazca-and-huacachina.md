@@ -1,0 +1,20 @@
+---
+title: Nazca and Huacachina
+author: mvaltie
+date: 2010-02-17T15:40:17+00:00
+url: /2010/02/17/nazca-and-huacachina/
+
+---
+Jacob and I escaped Carnival water fights in Cusco on a night bus to the little city of Nazca along the coast of Peru.  I was especially excited to see the famous &#8220;<a href="http://en.wikipedia.org/wiki/Nazca_Lines" target="_blank" rel="noopener noreferrer">Nazca lines</a>&#8221; in the desert sand.  The ancient Nazcans created lines that are huge and only visible by air, probably as ceremonial routes to attract the attention of the gods.  We chartered a little Cessna airplane with 4 other tourists and flew over the most famous of the lines.  They each resemble animals or shapes such as a monkey, an astronaut, a spider/ ant, or trapezoids.  It was a short and nauseating flight, but it was amazing to see the huge forms in real life.
+
+After the flight we hoped on yet another bus to the next little city of Ica.  Other travelers advised us to definitely go on a dune buggy tour of the surrounding desert, but to stay in the town of Huacachina about 5km away.  We got a cab to Huacachina, which was closer than we thought.   The little town is a real life oasis in the middle of huge sand dunes.  Our hotel looks out on dunes and the little laguna surrounded by palm trees.
+
+Tuesday we had a full day adventure around Huacachina.  In the morning we went on a &#8220;wine tour&#8221; around 3 little vineyards or &#8220;bodegas&#8221;.  Our guide was a taxi driver, and the wineries were little vineyards with tasting areas.  The first vineyard had sweet, dry, red and white wines along with the local grape brandy, Pisco.  The pisco was more like distilled vodka, which was an interesting thing to taste after the first few wines.   Next, we toured the grounds of another vineyard.  Our guide explained the process of making traditional wines and distilling the harsh pisco.  We tasted a few more wines, then went off to the last vineyard.  Our driver showed us around the basement cave and dipped wine out of the mud brick casks with a hollowed-out bamboo stick.
+
+A little bit sickened by all the sweet wines and harsh pisco, we gladly went to the next part of the trip- lunch.  We were promised a fish market and ceviche, but it turned out we went to an excellent little cevicheria in Ica.  We had amazing ceviche, fried fish and a seafood fried rice dish.
+
+Right after our tour we came back to Bamboo, another hostel/tour company in Huacachina.  From Bamboo we went on a dune buggy ride with 5 friendly Dutch.  I originally thought we would each get a little dune buggy to drive around the sand dunes, but the large buggy with a professional driver ended up being more fun, and probably reassuring for our mothers.   Our driver, Anthony, took us out past the town into the large dunes and drove up and over hills that tossed us around in our seats.  We stopped a few times to take photos, but we all wanted to ride more than pose for photos.  At the next stop, Anthony handed out bits of candles and pulled out wooden sand boards for us all.
+
+At the top of the little hill we each took a turn laying down and sliding down the sand on our boards.  We cheered each other on, climbed the next hill, waxed our boards and repeated.  At the end of our 3 hills Anthony picked us up and brought us to 2 steeper hills.  We all survived the big downhill adventures and got back in the buggy ready to go over more intense hills and curves in the buggy until Anthony dropped us at another set of 3 even bigger hills.  The first 2 were great except for the trudge up the other side of the curve.  When we got to the top of the final hill we were all a bit in awe.  One of the Dutch girls went first and we all realized how steep and tall the hill is when she disappeared slightly as she got smaller and smaller down the hill.  Back in the buggy, we rode over the huge desert and up and around the hills bumping and flying along.  We stopped one last time for a view over the little oasis town o the right and the sunset on the left.
+
+Tomorrow we hope to explore the Ballestas Islands in the morning and head to Lima.

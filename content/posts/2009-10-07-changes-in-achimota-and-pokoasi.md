@@ -1,0 +1,19 @@
+---
+title: Changes in Achimota and Pokoasi
+author: mvaltie
+date: 2009-10-07T07:53:29+00:00
+url: /2009/10/07/changes-in-achimota-and-pokoasi/
+
+---
+Last Tuesday evening our German friend and volunteer teacher left.  Anne is now back in Germany, teaching music, Religion, and maybe even English.  The day after she left we got a replacement- a French girl arrived Wednesday night to teach French and work with the VPWA office.  Thursday we finally met our new apartment mate, Justine.  She’s taking a year off of university, and she’s going to spend 6 months in Ghana while her boyfriend volunteers in Accra with a German aid organization.  Not surprisingly, she opted to spend the weekend with him in Accra rather than with us in Pokoasi.
+
+Another big change is happening with our work and volunteer work.  Friday, fed up with the lack of communication from our volunteer director, Hayford/ BTC, I insisted that we all talk before going out.  I especially felt a bit out of place doing work for free in an office while I see so many chances to help Ghanaians every day.  At the moment I felt that my money was doing the most for Ghana, and I wanted to do something about it.  I talked to BTC about possibly doing more work with VPWA – lately Jacob and I wake up to find that BTC is either gone to a meeting, sleeping, or doesn’t have any specific jobs for us to do. Sometimes we end up working on Sunday nights with his friend Forson to re-start a health newspaper.  The lack of structure and guidance was getting to me, and Jacob and I decided to talk to him about it.
+
+BTC was at the very least understanding of how we felt.  He told us he just assumed that we knew what was going on or we were too busy.  He told us he was more concerned about not overwhelming us rather than giving us clear instructions or specific tasks each Friday.  Now that we’ve talked about it, hopefully we can start to do more beneficial things for VPWA and Ghana.
+
+At work on Monday, we had a similar conversation with BossMan.  Since our marketing plan, we haven’t had much to do in the office.  BossMan took our plan, but set it aside as we’ve written and hand-delivered letters to huge international aid organizations and corporations in Accra.  Some days we’ve done nothing but driven around to the WHO, UNICEF, and US Embassy. We go through security gates, metal decetors, and fill out log books all to deliver the company’s introductory letters to secretaries who promise to get back to us.   While it was interesting to see different parts of the city, the excursions seem rather ineffective, since our company has yet to do any new business with these giant organizations.  Jacob and I have lost some of our motivation, and BossMan can run around all day without cluing us in to potential situations where we could help.  Since everyone in the office speaks either Twi or French, we tend to get excluded from information.
+
+Jacob talked to BossMan about being left out since we thought he&#8217;d take the &#8216;man-to-man&#8217; talk more  
+seriously than if we talked to him together.  Later, we talked to him about the lack of work we&#8217;re doing. We offered to do more if he only tells us.  He mentioned that he wished there was a thing he could show potential customers about all of the services we offer, so I jumped in and made a powerpoint about car rentals, ticketing, tours, event planning, etc. Yesterday he had us give an impromptu presentation to a guy in our office. I enjoyed it and I think he gets that we want to work, but need direction.
+
+All in all, the changes have gone well. I’m feeling more in touch with our boss and volunteer director- hopefully it will begin to turn into more meaningful work for us Monday- Friday.  I do miss Anne, although Joesette is nice.  BTC tells me we should be getting a Brit volunteer in mid-October and 2 more Aussies in late November.  Things are looking good at work in Achimota and with VPWA in Pokoasi.

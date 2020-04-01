@@ -1,0 +1,16 @@
+---
+title: Happy Labor Day!
+author: mvaltie
+date: 2009-09-08T15:29:13+00:00
+url: /2009/09/08/happy-labor-day/
+
+---
+Nothing like a failed trip to the American Embassy to remind us that it’s labor day.
+
+During the day Sunday we finally had some time on our own after 2 days of social obligations – the funeral and Nimo’s naming ceremony.  We watched the kids play soccer, Nimo entertain his brother’s family from the UK, and talked to the ladies doing laundry. Right as Nimo offered us beers (we feel obligated to say yes to him), our volunteer director pulled in the compound with 3 new volunteers.  I was mildly embarrassed that we greeted them with beer bottles in hand (great first impression&#8230;), but we introduced ourselves and helped them bring in their bags.
+
+Our new neighbour, Anna, is from Germany and she’s going to teach English for 3 weeks.  Her 2 friends, Marian and Eva, have been travelling with her for 6 weeks but have to go back to Germany to finish their teaching degrees.   Marian met our volunteer director on her last visit to Ghana and set Anna up to volunteer here between her theory and practice sections of her teaching certifications.  Marian and our director apparently had been teasing that they would have a Banku eating contest, and we all ate some Banku with either peanut soup or tomato stew.
+
+We convinced Anna to go to the last part of the funeral with us.  Since the burial was Saturday, Sunday was the celebration day.  This time, we had brown African cloth to wear rather than the black mourning clothes. We sat under the tents again (this time on the ‘regular people’ side, not the side reserved for Chiefs), and got crackers and soda like we had on Saturday.  After about an hour, Ben snuck up behind us and took us to another set of plastic chairs behind the shops separating his house’s courtyard from the street.  Soon music started blaring and people brought out bottles of liquor, sodas and beer.  Everyone starting dancing and we, the 3 Obroni, joined in.  Pokuase men now recognize me and know that I’m with Jacob but as soon as they saw a new Obroni girl they fell over themselves to dance with Anna.  We fended off the creepy ones and had a lot of fun dancing. After several songs, we headed home to rest before work and Anna’s first day of school.
+
+At work yesterday BossMan decided we should drive around and deliver letters to companies and international organizations to drum up business.  It took most of the day since we had to wait for our other boss, who has a car, to come in and then for us to get from the WHO to UNICEF, and back to the American Embassy.  Our bosses decided that we, the Americans, should go into the embassy. We completely forgot it was Labor Day until the guards reminded us that it was an AMERICAN holiday. After unsuccessfully delivering letters only to guards, we convinced BossMan to rethink how we spent our time and who exactly we want to target.  By 2pm Jacob and I were very hungry, and BossMan and BossLady took us to a restaurant near work for our first taste of foufou.  Everyone has warned us that foufou is like bad Banku- a ball of corn, flour, and plantain served in some type of sauce/ stew- but was actually very good.  We had our foufou in a spicy tomato stew with goat meat.  So good!

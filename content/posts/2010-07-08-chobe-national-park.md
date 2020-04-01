@@ -1,0 +1,17 @@
+---
+title: Chobe National Park
+author: mvaltie
+date: 2010-07-08T12:05:16+00:00
+url: /2010/07/08/chobe-national-park/
+
+
+---
+After 10 long days in Johannesburg Jacob and I were glad to move on to new countries.  From the Oliver Tambo airport we flew to Victoria Falls in Zimbabwe.  We got a ride from the airport to the Botswana border then on to our hotel.
+
+Sadly we missed the afternoon game drive and the evening boat cruise so we just lazed about the hotel until our buffet dinner.  I think our time in Sabi Sands Game Reserve near Kruger Park spoiled us and set our expectations incredibly high. The buffet was big but not too good, and the hotel was nice but just couldn&#8217;t compare the nice and beautiful hotel in Kruger. The plus side was that our hotel and the park are located right on the Chobe River and all the animals eventually come to drink in the open for us to see.
+
+Bright and early the next morning we went out on our morning game drive at 6am.  We had to drive for about 10 minutes on the real roads to get to the park gate.  Once inside the park it was all dirt and sandy roads covered in animal footprints.  Our driver/ tracker pointed out several lion paw prints and explained that he knew they were from the day before since a nighttime bug had crawled over them.  Immediately we saw groups of Cape buffalo, which are apparently not anything like the Asian water buffaloes. We bounced along for a while as the sun began to rise and bring some much-needed warmth and light.  As soon as the sun was fully risen we suddenly were able to see all sorts of animals.  Our guide jokingly called impalas the &#8216;McDonald&#8217;s of the bush&#8217; because there are so many and everyone likes to eat them.  We did see hundreds of them throughout our drives, but sadly no one was eating at McD&#8217;s when we were looking.  Once we got further into the park we came across several groups of elephants including groups of males and mixed groups of mothers with little babies.  Even our guide was surprised at how little one of the tiny elephants was &#8211; he was probably 4 months old and about 2 feet tall already!
+
+Around 9am we headed back to the hotel, shed some of our layers and hopped on a private boat cruise of the Chobe River. Immediately we spotted monkeys in the tress and lizards and crocs along the banks.  We saw huge groups of hippos lazing around in mud and sitting on the little islands in the river.  As we got close to a big croc on the inner island we noticed a big water bubble forming right next to the boat.  It was a hippo! He was not happy to see us and might have tried to flip the boat if we hadn&#8217;t quickly motored away.  In our last boat ride of the night- the &#8216;sunset cruise&#8217;- we saw over 100 elephants drinking and swimming at the riverbank.  The sheer number of animals was amazing.
+
+On our last day we went on one more late morning game drive.   Most of the drive our fellow game-spotters seemed to be more interested in the birds we saw along the way to the larger game.  Jacob and I joked that we were the experts now that we&#8217;d seen most of the animals before and we were unimpressed with herds of impalas, kudu and small birds.  Near the end of the drive it got exciting again as other rangers found lions and we sped off to the middle of the park to see them before our time ran out.  Ironically we began the drive by stopping for lone buffaloes but as we raced to see the lions we sped past groups of giraffes, mongoose, and huge groups of impalas.

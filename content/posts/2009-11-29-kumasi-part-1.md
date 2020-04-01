@@ -1,0 +1,28 @@
+---
+title: Kumasi, Part 1
+author: mvaltie
+date: 2009-11-29T10:45:54+00:00
+url: /2009/11/29/kumasi-part-1/
+categories:
+  - Uncategorized
+
+---
+Friday morning Jacob and I set out on our Excellent Adventure.  We finalized an itinerary with BossMan, who then arranged a driver for us.  We called our trip the excellent adventure, and he said he’s seriously considering naming a tour after it.
+
+Around 8am we met our driver, Alex.  He came to us at our compound at ACP Ridge, since we live on the main road between Accra and Kumasi.  We attempted to pack lightly, but we did plan ahead and brought some small lunch items for the car such as tuna, peanut butter, chips, granola, and a whole bag of 50 satchel waters.  On our way we bought bread in the market town of Saiu.
+
+Outside of Kumasi we stopped at 3 craft villages.  Kumasi and the Ashanti region are especially known for handcrafts such as kente cloth, pottery, woodcarving, and adinkra stamps, as well as Ashanti people’s ability to bargain and “be about money.”  Our first stop was impressive for the crafts and bargaining. Bonwire is the most famous kente weaving town, and used to only make kente for the Ashanti kings, but now the kente factory is rather commercial and pushy.  We bargained hard but still felt ripped off, and the main kente man promised us our fabric would be ready by next Thursday.
+
+Next up was Ntonso- an adinkra stamping village.  We were ready for more of the same treatment, but it was pleasantly surprising not to have a ‘guide’ or salesman greet our car.  We walked through the groups of men stamping traditional Akan symbols on cloth, and one of the younger ones offered to show us the process.  He demonstrated how they take the bark of certain trees, crush it, boil it down, and cook it 3 times to make a dark red colored ink.  He showed us a basket of traditional symbols carved from cavaassa gourds and then showed us how to make our own.  Jacob and I each picked out a strip of cloth and the stamps we wanted.  All of the stampers stopped working to help us and watch us make our own adinkra cloth. It was a great experience and everyone was so excited that we were interested in their craft.  Even 2 men weaving kente nearby insisted that we come watch them work.  They talked Jacob into weaving a few rows of kente, while I took pictures.
+
+Our last craft stop was the woodcarving area outside of Kumasi.  We stopped at a few roadside stalls selling the finished products.  We were getting a bit tired of bargaining and looking, but we decided to walk around to find the actual carvers at work.  We only saw about 3 men making elaborate statues of warriors or women carrying water on their heads but we did find Henry.  Henry approached us with a few paintings of women and warriors, but he was nice and we promised to stop by his shop.  We looked at a few more wood carving stalls, and Harold was polite but insistent, so his shop was next.  We actually found a few nice paintings and bought 3 from Harold and his brothers.  Finally decided to stop looking, we went by 2 more woodcarvers, but we ended up buying a few more things.
+
+After a full day of driving and shopping, we were ready to go to the hostel we’d booked.  It looked like a great place for younger volunteers and travelers, right on Lake Botswame.  We found out that the lake was not quite in Kumasi, and the hostel was not quite close to any other main road. We drove in the dark and finally got to the hostel at about 7pm. The hostel was nice, but not quite worth the drive for an overnight stay.
+
+We decided to start later, around 10am, to enjoy some of the lake and the games at the hostel.  We found out our driver, Alex, is quite the game player.  He taught us how to play a Ghanaian game with slots and seeds, a bit like checkers.  On the road again, we headed off to the Kejetia Market, the market in Kumasi and reportedly the largest market in West Africa.  I was intimidated by the size and amount of people walking in and out of the narrow openings to endless rows of shops.  We decided just to look over the whole market on the bridge, but when we came back to the car Alex was getting his shoes shined.  We took the chance to take a look into the actual market and we got caught up for a while looking at all the things for sale.  We bought some pottery, jewelry, and some Obama biscuits for the road.  Alex must have thought we were lost, since we told him we would only take a minute, but our search for foufou bowls took us deep into the labyrinth of shops.
+
+
+
+Our next stop on the Adventure plan was the Boabing-Fema monkey sanctuary.  Similar to the Tafi-Atome sanctuary we went to a few weeks ago in the Volta Region, the people and monkeys happily coexist.  Our guide was a bit pushy, but he did tell us some interesting history of how people started worshiping and living with the Mona and Colombo monkeys.  According to legend, a warrior went to get water in the forest and found 2 monkeys with a totem.  He took the totem as a promise to protect and look out for each other.  Now the monkeys come to the village to die so the people can bury them and the monkeys cry out for a week before a village elder is about to die.  We got to feed a few monkeys bananas from our hands, but they seemed less friendly than the monkeys at Tafi-Atome.
+
+It started getting dark when we left the monkeys, and we decided to spend the night at Baah Motel in Wenchi, on the road to Bui National Park.

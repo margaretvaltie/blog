@@ -1,0 +1,14 @@
+---
+title: “Yes, lying is bad-but what if it works!”
+author: mvaltie
+date: 2009-09-01T15:11:19+00:00
+url: /2009/09/01/yes-lying-is-bad-but-what-if-it-works/
+
+---
+One funny moment from work- one of our co-workers, D, has been obsessed with the company’s facebook page/ group.  He wants thousands of people to join the group, despite the fact that the company has never actually run a single tour.   Jacob and I are trying to convince him that facebook groups are something people join and then forget- it’s not the first place someone interested in touring Ghana would look for before searching travel sights or Google.  Nonetheless, D wants people to start writing ‘customer reviews’ to get people to use our company’s tours.  We explained that without a tour from the company, no one can review it.  His solution- have all his friends join the group and post made-up reviews about the tours that have yet to happen.  I simplified it for him, in case it was a misunderstanding. I told him that it would be lying to customers. D replied, “Yeah lying is bad, but what if it works?” His response was hysterical, and showed us that we were disagreeing on more than ethics.  We did finally convince him that lying in a facebook group would not create sales or realistic reviews, thanks to BossMan’s interpretations.
+
+Today we also presented our marketing plan, which was interesting. BossMan gave us very few parameters to work around, so we were free put the plan in our own terms.  He didn’t have any specific expectations either, so it was hard to figure out what exactly to cover.  He agreed to most of the things we talked about, and clarified some of the areas we have yet to understand about the business.  I hope the company uses it in the future, rather than just putting it on a shelf forever.
+
+The marketing plan process was definitely worth the experience. Now I think we are supposed to go out and make sales calls for businesses that might rent cars or book airline tickets, figure out advertising for tours and study abroad programs, and promote the company.    As far as we can tell, the company has yet to actually do much beyond setting up a company, website, logos and slogans, and hire interns and volunteers (or free labor).  More to come once we figure out what we’re doing!
+
+In about an hour Jacob will go off to coach his soccer team, and I will brave the afternoon tro-tro ride solo.  Tuesdays have become the Ben hang-out days. Jacob and Ben will meet at practice and walk part of the way back to both of our compounds, and I will meet them halfway at another friend, Eric’s house.  There we usually talk, play music, drink a few Star or Club Beers and wave at the children who come by to look at the Obruni.

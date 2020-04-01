@@ -1,0 +1,14 @@
+---
+title: That was one expensive haircut…
+author: mvaltie
+date: 2009-09-04T13:47:26+00:00
+url: /2009/09/04/that-was-one-expensive-haircut/
+
+---
+# <span style="font-weight:normal;font-size:13px;">Wednesday afternoon Jacob and I left work later than usual because we headed into the city rather than away. Around 5pm we met up with our friend Ben, who co-owns a barber shop in Accra. Ben took a tro-tro to our work, and we hopped in with him for the rest of the ride to his shop. His friend, Greg, cut Jacob’s hair even though it was clear this was his first experience with Obroni hair.</span>
+
+After the cut, Greg offered us some of his dinner. We were very hungry but felt bad taking his dinner when our cleaning lady/ cook, Lizzie, makes dinner for us every night at home.  After Greg ate, Ben’s friend Nii came by and the four of us headed back to Pokuase. We caught one tro-tro, but got stuck in traffic and opted to walk to the place where we were planning to connect to another tro-tro.  At the ‘tro-tro station’ there was quite a crowd of people trying to go North towards Pokuase, and we struggled in vain to all squeeze into a few tro-tros.  After a long wait a tro-tro came, but there were only a few seats left. The crowd was desperate and everyone was pushing- somewhere in the pushing and oncoming traffic someone reached into Jacob’s pocket and stole his phone.
+
+Luckily, Jacob and Ben had traded phones a day before. Ben really liked Jacob’s Razor, but all of our travelling cracked the screen and was wearing the battery out.  Jacob wanted a sturdier phone, so he offered to trade for Ben’s ancient Nokia brick.  The guy who stole that phone was probably the most unhappy thief in Accra!  The reassuring part about the whole thing was how upset everyone else was. Once Jacob noticed the phone was gone, Ben and Nii yelled and everyone around started looking on the ground and offered their phones to call the stole phone.  We even got a hold of the thief on the phone and offered him 5 GHC to return it, but he eventually hung up and took out Jacob’s SIM card. Right after we caught a tro-tro home, and Ben continued to be upset that Jacob’s phone was stolen. We told him it was not a big deal since Jacob still had his registration card and could keep his phone number and contacts once he bought a new phone.  Ben still sighed heavily and seemed down on the ride home- he told us he’s never had anything of his stolen before!
+
+Today at lunch Jacob bought a new phone and was able to get his old number reactivated with Vodaphone. After multiple tro-tro fares each direction, a stolen phone, and some conciliatory plantain chips, it ended up to be a more expensive haircut than we bargained for!

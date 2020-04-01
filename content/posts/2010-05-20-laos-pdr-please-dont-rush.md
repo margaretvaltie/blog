@@ -1,0 +1,22 @@
+---
+title: 'Laos PDR- “Please Don’t Rush”'
+author: mvaltie
+date: 2010-05-20T07:46:59+00:00
+url: /2010/05/20/laos-pdr-please-dont-rush/
+
+
+---
+In the Laos capital of Vientiane Jacob and I booked an afternoon bus to the party town of Vang Viang, which gave us the morning to see essentially the entire city.  Vientiane must be one of the world’s smallest capital cities with a population of 200,000 and about 3 main tourist sites.  In about 30 minutes we walked down the main street to see the former king’s place, the king’s personal pagoda, and the largest wat in the country.
+
+Becks and Jono were on our bus to Vang Viang along with a Canadian couple, Sean and Madison.  The 4 of us went our own ways but kept meeting up and running into each other for dinner, tubing and a caving trip.
+
+The main attraction in Vang Viang is tubing.  Just like tubing in New Orleans, we got tubes, rode to the top of the river and floated down to the exit point except that all along the way were bars pumping loud music, long swings out over the river and mud volleyball courts. Everyone told us not to go before 11am but when we headed down to the river around 2pm the bars were just starting to get going.  To get to the top of the river we got a tuktuk and then tubed down the river with the people from our tuktuk, stopping along the way to swing in some hammocks and play mud volleyball.  I opted not to do the swings or slides along the river since the water is at its lowest and there are clearly no safety standards in Laos.  I will bungee jump off a bridge but I will not attempt to swing into the Vang Viang River!  
+While it seemed like most people never actually made it to the river, Jacob and I were eager to lazily float down the river like the tubing in New Orleans but even with the head start on most other tubers we still didn’t make it to the end point in time to get our deposits back on the tubes.  Because the water level is so low we hit shallows along the river and missed the 6pm cut-off to return the tubes.
+
+We reunited with our tubing buddies for dinner and happened to sit next to Becks and Jono and later ran into Sean and Madison.  The town of Vang Viang got wild at night and we wondered around from bar to bar watching all the people make fools of themselves after drinking all day in the sun and partying all night in loud, crowded bars for Westerners.
+
+The next day we went tubing again with Sean and Madison, but much laid back than our first day and much more than most other tubers on the river.  We made a few stops to relax in a hammock bar but still wouldn’t make the 6pm cut off time.  At the last bar on the river we called a tuktuk to pick us up from where we were in order to get back just in time for the deposit.  The four of us had a low key night and signed up for a caving trip the next day.  Our trip left bright and early at 8am and we visited 4 big caves in the limestone hills around the outside of the city.
+
+In the first cave we had a realization of what our guide meant by “discovered”- he mentioned that the cave was discovered in the 1980s, but the big Buddha statue was built in the 1960s to replace an older one.  The dates didn’t match up to us but after a few questions we realized that our guide, like several guides we’ve had in Ghana, Myanmar, and South East Asia, say “discovered” to mean the first time outsiders found a site and recorded it.  We’ve had several guides tell us waterfalls, temples and so on were discovered in the last 50 years when it’s clear that the local people must have known about them long before.
+
+The next 3 caves were much more intense, and we borrowed headlamps from the men outside the caves. Each cave had glittering stalactites and stalagmites, narrow paths and tiny Buddha statues deep within the dark tunnels.  At the most interesting cave we each got what looked like a small car battery on a necklace and a headlamp, then we each got an inner tube to float through the last cave.  Despite the guide’s reassurances I was still very concerned about the ‘waterproof’ batter around my neck in the underwater cave!  We had to sit on the tubes and lean back to fit under the small overhang at the mouth of the cave and we pulled ourselves along by ropes hanging in the roof of the cave.  After the caves we had lunch near the water cave and dropped off the kayakers in our group.  The next day we set out on our long journey to the south of Laos.

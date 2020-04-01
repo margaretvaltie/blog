@@ -1,0 +1,18 @@
+---
+title: “It is more than good. It is extremely good.”
+author: mvaltie
+date: 2009-08-30T12:20:54+00:00
+url: /2009/08/30/it-is-more-than-good-it-is-extremely-good/
+
+---
+&#8230;our friend Ben&#8217;s favorite line, along with &#8220;Don&#8217;t get it twisted!&#8221;
+
+This weekend was another soccer game, this time at ‘home.’ We walked over to our friend Ben’s house to meet up and then walk over together.  We waited in the empty room of the compound, which is set up in a U-shape, with all the single-room houses facing each other to create a courtyard. Each room/ house has a porch, and we sat on the porch of the empty room.  We waited for Ben to finish the work he was doing and shower, and as we sat there a chicken walked up to where we sat.  Jacob jokingly said “Silly chicken, do something useful and lay and egg or something.”  As we waited it started to rain, which most likely sped up Ben’s outdoor shower around the corner.  When Ben came back to get us, we got ready to go and noticed the chicken did in fact lay an egg on the porch!
+
+Instead of walking towards the soccer field, Ben led us in the opposite direction to his grandmother’s house.  We’d met the 90 year-old lady a few nights before, but we had all the same greetings and questions from her.  There were 2 large tents set up in the courtyard of her compound, and about 30 people were gathered in plastic chairs. It appeared we were not in fact going to make the game on time- we were in the middle of some type of ceremony.  Ben’s father, the cheif of Pokuase, was seated in front of an older man who ritualistically poured out a glass of Schnapps after each series of phrases.  We still have no idea exactly what was going on, and Ben frequently got up to talk to others, his father, and take phone calls.  The crowd was informal, everyone followed some periods of talking with reverent quiet as the leader spoke.  Jacob and I watched and during the breaks we marvelled at what people would do without plastic chairs- it seems like the only thing people have to sit on anywhere we go.
+
+After the ceremony, we found Ben again. He was getting up and walking around because they crowd was finalizing the death notice for his mother.  Her funeral is this weekend, and they had apparently made a few mistakes in the notices and handouts for the service.  Ben wanted us to go to Accra with him to make the changes- soccer was now out of the plans.  We did have some shopping we wanted to do in Accra, so we went along.  We met with the writer on a street corner, then went to a bank, and then headed to the Accra Mall.
+
+The Accra Mall is the only shopping mall and supermarket in the area and it is apparently where the rich Ghanaians go to show off their middle class status and disposable incomes.  We went to a few stores to buy things we might not otherwise be able to get in the village- like a toothbrush holder, hooks to hang things on, 2 soccer balls, and a laptop cover for Jacob’s computer.  Jacob and I took Ben to the food court next. We asked what he would like but all he wanted was the usual Ghanaian fried rice with chicken rather than our Western pizza.  Inside the mall it felt like we could have been in any country in the world- I didn’t think I was in Africa at all.
+
+We went to the supermarket and bought some possible lunch things, since we’ve been going out to lunch every day.  We found some peanut butter, jelly, bratwursts, and green tea.  After a long day of shopping we headed home, and bought some toilet paper from the cab from a man selling rolls on the side of the street.  It was rather convenient.

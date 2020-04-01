@@ -1,0 +1,22 @@
+---
+title: Last Day of Work
+author: mvaltie
+date: 2009-11-26T16:21:50+00:00
+url: /2009/11/26/last-day-of-work/
+categories:
+  - Uncategorized
+
+---
+Today is our last day of work in the office.  It&#8217;s amazing how quickly time has passed!
+
+We went out to lunch (foufou, of course) with BossMan and BossLady to share some of our thoughts about the company and our coworkers.  Some of the biggest issues we see in the long-term are customer service, employee training, expanding to new services, and delegation.  My most worrisome thing is a total lack of customer service, and the training for new employees that causes it.  We created an office customer service note with all the benefits of customer service and a bit about service in our office for all future employees to have.  Hopefully, it will be one of the things that lasts and makes a big difference in the company.  I explained &#8220;corporate culture&#8221; and how we want our office to have a friendly culture, and now BossMan uses &#8220;corporate culture&#8221; all the time.   We also talked to them about if (and hopefully when) the company grows.  We discussed plans for hiring new employees and expanding to more travel services and how exactly to grow without stretching too far.
+
+BossMan&#8217;s biggest problem is that he is the boss, the founder, and the most knowledgeable member of the company.  When people come in the office they ask for &#8216;the boss&#8217; or ask about one of the services.  None of the &#8216;real&#8217; employees feel knowledgeable enough (or care enough) to talk to customers directly, and everyone invariably ends up waiting to talk to BossMan.  At one of our talks with BossMan, we told him he should share his knowledge and give all employees specialized roles for each service.  For example, one lady called Nana should do all the airline ticket reservations but she differs everyone to BossMan first.  They explain their itinerary to him, and he explains it to Nana.  If she would only ask people what they want as they enter or took the initiative to promote her &#8216;service&#8217; to everyone it would be much less of a BossMan-reliant company.  We noticed BossMan was seeming overwhelmed with projects, and we mentioned how tasks could be delegated to make the office more specialized.  As soon as we mentioned this to him, BossMan&#8217;s eyes lit up like we&#8217;d solved all his problems.
+
+Our talk was short, since the foufou was hot and required most of our attention.  BossMan and BossLady read over the &#8216;memos&#8217; we made for them to keep and use once we leave.  It is nice to hear that they like our work, but it&#8217;s very disconcerting to me to give someone a piece of work without any comments or suggestions.  They seemed to be on the same page about other employees, the company&#8217;s future and everything we talked about.  I&#8217;m glad we had the talk though, it seems like many of the things that happen in the company just occur without anyone discussing.  Luckily, BossLady is more aggressive and wants to know about everything, when she does come to the office.
+
+Once we leave, the Bosses will have a meeting to talk to everyone about the current company &#8220;culture&#8221; as BossMan says.  We gave them a few things to go over, such as the customer service and new employees but he will ultimately control the topics.  We thought it would be best that everyone met once Jacob and I leave. We agreed that the Bosses really are the bosses and it would be strange for that advice to come from us, the &#8220;marketing consultants.&#8221;  I&#8217;m sure BossLady will take over a bit of the conversation, but I hope everyone sticks to somewhat relevant office topics&#8230;
+
+
+
+Jacob and I are also starting to plan our last days in Accra after our trip to Mole.  We&#8217;ve been taking photos with a few of our favorite people: Vicky- lunch-maker extordinaire, Emmanuel- our cab driver to Volta, Yao- our all around cab driver, and the work crowd.  We are attempting to develop the photos to give back to our favorites as a little memento of their American friends.  It&#8217;s a strange feeling to say goodbye to the people we see almost every day.

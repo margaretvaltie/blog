@@ -1,0 +1,26 @@
+---
+title: 'David: Madrid Day 1'
+author: mvaltie
+date: 2009-06-21T16:07:13+00:00
+url: /2009/06/21/david-madrid-day-1/
+categories:
+  - Uncategorized
+
+---
+<div>
+  <p style="text-indent:.5in;margin:0;">
+    <span style="font-family:arial,helvetica,sans-serif;">We had a half-day’s meeting with MTorres and Tecnatom again at MTorres’ facilities in Pamplona before catching a flight to Madrid this afternoon. It’s been an interesting day, and, honestly, though it’s only been two days’ worth of meetings and work, I feel like we’ve gotten a fair amount accomplished, as well as getting used to the idea of working/wandering around Spain. It makes for an interesting combination, and I certainly cannot think of a more interesting cast of characters. Let’s start from the beginning, shall we?</span>
+  </p>
+  
+  <p style="text-indent:.5in;margin:0;">
+    <span style="font-family:arial,helvetica,sans-serif;">When I said beginning, I should have meant late last night. I took a walk around Pamplona with Denny as he looked for a dress for his daughter – I was along to translate and look at the cool churches that we passed by. Greg apparently went out during the same time, though we didn’t see him. He made the huge mistake of getting food and eating his dinner separately from us – you’ll understand more as you read on. We met Emilio and Javier last night at 8:30 in Pamplona to walk to the ‘Europa’ hotel, which happened to be roughly equidistant to our two hotels. To say that it was very nice would be a significant understatement – it is a small hotel as well, and I noticed it had all five stars as we walked into the restaurant. It’s located on the boulevard where the bulls are released during the start of the bull-running festival, and it is very popular with people for breakfasts during that week… if you schedule them 8 months in advance. We had a five-course meal, starting with some excellent gazpacho and a Spanish version of pig-in-a-blanket. We then had some Iberian ham on wonderful bread, and then grilled bell peppers with sea salt over pork rinds, basically. They were fried up and served hot, and the combination, though odd-sounding, was wonderful. The fourth ‘appetizer’ was a quickly boiled egg (it was liquid in the middle) with wild mushrooms, bacon, and green beans served hot in a small bowl. Again, an odd combination of flavors that turned out to be fantastic – the Spaniards did a good job picking the courses for the table, and I was already full before the main courses arrived. I ordered beef carpaccio, an excellently thinly sliced sirloin served with arugula and parmesan cheese with a light olive oil over everything. Though I couldn’t finish it, I settled in with everyone else for some wine after dinner and a local liquor that was incredibly potent. They served it in a small, elongated shot glass that was frozen. The liquor was red and cherry-tasting, and, though incredibly cold, burned the whole way down. Remarking from experience, Denny warned us all to sip it rather than try to take it like a shot, as he got drunk almost immediately the last time with that exact method. Dinner concluded shortly thereafter with Denny and Louie going to another bar afterwards, and Al, Javier, Emilio, and I going back to our hotels. I stayed up to finish <em>The Steel Wave</em> and fell asleep around 1:00 am. </span>
+  </p>
+  
+  <p style="text-indent:.5in;margin:0;">
+    <span style="font-family:arial,helvetica,sans-serif;">I woke up this morning feeling only a little tired and not at all the worse for wear, which I was worried about, as I was somewhat tipsy after dinner with the wine and alcohol. I had breakfast with the crew, minus Greg, who is not a morning person. It was only when we had all checked out and were waiting on cabs to go to MTorres that we started to be worried. Two phone calls and three rounds of knocking later, Greg appears in his pajamas, rubbing sleep out of his eyes. We’re already late to MTorres at that moment, so you can imagine that we were a little more delayed. </span>
+  </p>
+  
+  <p style="text-indent:.5in;margin:0;">
+    <span style="font-family:arial,helvetica,sans-serif;">After our meetings, we hopped a quick 45-minute flight to Madrid, where we checked into our ostensibly 4-star hotel. It might deserve about 2.5 – it’s ok, but Pamplona has been our consensus favorite unless Madrid really surprises us soon. We then had a social beer in the downstairs bar before heading out to walk randomly around the city close to our hotel. We’re up on the north side of Madrid, far from the downtown area, and it is not very nice – lots of dirt parking lots, construction, and graffiti, surprisingly. We had an enjoyable and slow dinner talking about anything and everything that came to mind, and parted ways a short time ago to meet up again for breakfast tomorrow at 7:30. We’ll go to Tecnatom to meet with them about the ultrasonic portions of the machines, so this should be a little bit more directly up my alley, though the last several days have been very interesting overall, even if they haven’t been explicitly related to NDI. </span>
+  </p>
+</div>

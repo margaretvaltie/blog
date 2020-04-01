@@ -1,0 +1,22 @@
+---
+title: When was Europe founded?
+author: mvaltie
+date: 2009-06-28T15:48:35+00:00
+url: /2009/06/28/when-was-europe-founded/
+categories:
+  - Uncategorized
+
+---
+Today we met up with another free city walking tour and spent about 4 1/2 hours walking to most of the sights in the old city and the former Jewish district.  The free tour guides, like the one in Vilnius, operates for free and they hope to make money by giving great tours and getting tips rather than charging people for a tour that might end up badly.  Our guide and guide-in-training were very good, and people joined and split off from the group all along the walk.  As we walked to another site we talked to an Aussie lady who asked us when American was founded and the first Americans.  I had to try very hard not to laugh when she asked us next if we knew when Europe was founded. Jacob gave a very diplomatic answer and I mentioned something about Greeks&#8230;.
+
+We started in the Market Square with the basilica and old city hall- very touristy, but interesting history.  The guides took us around to a few small sites that are more humorous than historical such as dirty jokes in sculptures and strange translations. As we left the city center, we walked to old fortifications and parks in larger and larger concentric circles.  We hiked up to the old castle, which was a great view of the city and a beautiful cathedral where all the Polish kings were correlated and buried. Each bishop and king added on and created another layer of chapels and towers and it looks like a mix of all types of architecture, stone and roofs.
+
+We went to the seat of the Archbishop of Krakow and the place where Pope John Paul II stayed and was later remembered.  Our guide mentioned that JP opposed statues and wanted people to spend money on other things, yet there are 30 statues of him in Krakow and more throughout Poland.  He said JP&#8217;s presence is getting to be like an old Soviet joke- &#8221; I woke up and opened the newspaper, and there was Lenin. I turned on the radio and heard Lenin. I turned on the tv, and there was Lenin.  I&#8217;m afraid to open my refrigerator!&#8221;
+
+Next we walked over to the former Jewish area, Kazimierz.  Poland had almost 90% of the Jewish population in Europe before 1939. There had been numerous synagogues, but only 1 is active today. They estimate that there are 400 Jews in Kazimirez and the city of Krakow today.  It&#8217;s the oldest synaguge  in Krakow and the resting place of Remuh, a famous Rabbi and writer. Apparently the cemetery is rival with Prague&#8217;s Jewish cemetery as the oldest in Europe, but it&#8217;s hard for people to tell the respective ages. It didn&#8217;t help that the Nazis leveled it and used it as a garbage dump in the 40s.  Today, people have either replaced the headstones or created a few new ones and put the pieces of broken stones in the walls surrounding it.  The Nazis were apparently afraid of the Rabbi&#8217;s tomb and left it alone- it&#8217;s the only grave properly corresponding to the headstone.   Down the street is the Old Synagogue, which was the first in the city and is now a museum. After all the cathedrals of England and France Jacob didn&#8217;t understand, I got to learn about Judaism in the museum.
+
+Our guide took us to several places from the movie Schindler&#8217;s List. The actual places for the movie are now Soviet buildings, so Speilberg chose Kazimierz to shoot scenes including street shots, where Jews were forced to shovel snow, the apartment complex where the old lady hid under the stairs, and the square with Jewish restaurants and the synagauge.   He told us many of the buildings had not been touched since Nazi times and were left to deteriorate or were given to robbers and criminials who plagued the area with vagrants.  Until the 1980s people didn&#8217;t go to the former Jewish areas for fear of their lives, but brave (poor) artists started living cheaply there in the mid 1980s. Once the hip artist bars opened and the wall/ curtain fell people moved back to make the area a vibrant area for students and young people.  Now there are many &#8216;Jewish style&#8217; restaurants and bookstores in the square.
+
+Now we&#8217;re switching rooms from a dorm to a smaller private room and heading out to dinner.  Later tonight Jacob hopes to watch the US men&#8217;s soccer team play in the Confederation Cup finals and hopefully win our first ever!
+
+ __

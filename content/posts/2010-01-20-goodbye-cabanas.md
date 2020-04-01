@@ -1,0 +1,9 @@
+---
+title: Goodbye Cabanas
+author: mvaltie
+date: 2010-01-20T11:02:57+00:00
+url: /2010/01/20/goodbye-cabanas/
+---
+I&#8217;m a little worried that we have started out this trip like our last one- at the very best hostel! Last time it was the Naughty Squirrel, this time it was Cabana Copa.  By pure luck we found both of the hostels and booked it before they filled up with awesome people.  On our first day we met some fellow Americans, Danielle and Julian, from California.  Of course, there were Aussies- Mel, Sarah, Jerrod, Christian, Nate- and a Kiwi, Sebastian, and a few Italians.   Every night we had a group for dinners, social events in the hostel or just hanging around.  almost everyone from the hostel went to the football match on Sunday, and a group of us went out to a <span style="color:#333333;"><a title="Churrascaria" href="http://en.wikipedia.org/wiki/Churrascaria">churrascarias</a></span> Brazilian barbecue restaurant afterwords. Monday night was our last full night at the hostel, so a huge group of us went out to a street party in Ipanima.  The next day we all felt equally bad, so our dwindling group spent the day recovering, watching movies, and generally hanging about.
+
+Around 12.30pm Jacob and I said our goodbyes to Danielle, Julian, and Jerrod, who stayed another day in Rio.  We caught the 1.30am bus to Sao Paulo and arrived early this morning.  The bus was nice- air conditioned and reclining seats- but I still can&#8217;t sleep sitting up very well.  From first impressions, Sao Paulo does all the work while Rio parties.  The city seems to go on forever with buildings, graffiti, traffic, and cooler weather.  Rio people joke about their total lack of work ethic, and I&#8217;m sure people in Sao Paulo would agree.  Our Rio guide joked that the Christ the Redeemer statue had his hands far apart so that when the people of Rio finally work he will start clapping.
